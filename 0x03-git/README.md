@@ -1,1 +1,1 @@
-Life is great judt blieve your self
+Life is great just blieve your self always :)
